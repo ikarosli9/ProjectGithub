@@ -1,3 +1,1 @@
-izyan
-ika
-izzati
+i
